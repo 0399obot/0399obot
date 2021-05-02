@@ -4,7 +4,7 @@
                 
 	                 𝙒 𝙀 𝙇 𝘾 𝙊 𝙈 𝙀    
  #
-![STUPID HOUSE](https://github.com/0399obot/Welcome/blob/main/Setiaji.png)
+![STUPID HOUSE](https://github.com/0399obot/0399obot/blob/main/aaa_______.446-25022021-0002.jpg)
 #
          •••••••••••••••••••••••••••••••••••••••
          Saya Tidak Tahu Apa Yang Anda Rencana!! 
